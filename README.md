@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Piniie
+- 👀 I’m interested in games, anime but also silly series and movies
+- 🌱 I’m currently learning HTML, CSS and JavaScript
+- 📫 Reach me via social media or mail: piniie@outlook.com
+- 😄 Pronouns: she/they
+- ⚡ Fun fact: I dislike horror movies cause most of them are just boring
