@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning HTML, CSS and JavaScript;
 - 📫 Reach me via social media;
 - 😄 Pronouns: she/they;
-- ⚡ Fun fact: I dislike horror movies cause most of them are just boring;
+- ⚡ Fun fact: I dislike horror movies cause most of them are just boring T_T;
