@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Piniie or Celina;
 - 👀 I’m interested in games, anime but also silly series and movies;
-- 🌱 I’m currently learning HTML, CSS and JavaScript;
+- 🌱 I’m currently learning HTML, CSS and JavaScript, and Python;
 - 📫 Reach me via social media;
 - 😄 Pronouns: she/they;
 - ⚡ Fun fact: I dislike horror movies cause most of them are just boring T_T;
